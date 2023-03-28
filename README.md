@@ -10,3 +10,7 @@ Pattarawadee Wongckamsai     2013210683
 
 Extra music&effect :
 Paisan Kiatjanon
+
+
+gameplay :
+https://youtu.be/e9_XMZG8BjE
